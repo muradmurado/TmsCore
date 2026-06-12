@@ -1,1 +1,1 @@
-i am murad abaynew fullstack developer,
+i am murad abaynew cs graduate,
